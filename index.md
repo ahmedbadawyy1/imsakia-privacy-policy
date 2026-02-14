@@ -8,4 +8,4 @@ We do not collect personal data. Any settings you choose (e.g. city, calculation
 
 We do not sell or share your data with third parties.
 
-If you have questions, contact: your@email.com
+If you have questions, contact: ahmedbadwee2@gmail.com
